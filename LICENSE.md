@@ -1,4 +1,4 @@
-# 
+# متقدم sushiswap trading bot وظائف إضافية لـ Mac OS | مخصص sushiswap trading bot وظائف إضافية لـ PC Windows. مع توليد الإشارات و تخزين البيانات المؤقت — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
